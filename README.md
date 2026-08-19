@@ -1,0 +1,1 @@
+# Reglement_Giveaway_AClubs26
